@@ -1,0 +1,1 @@
+# validadorqr-14120556274_GAAD731001GQ2
